@@ -18,11 +18,17 @@ While investigating any dietary enhancement, a key inquiry is whether the item f
 I currently do not have access to the specific ingredients for Fairy Farms Hemp Gummies in Australia. However, the typical ingredients for hemp gummies include:
 
 •	Hemp Extract (CBD or Hemp Oil) – Derived from hemp plants, it contains beneficial cannabinoids like CBD.
+
 •	Sugar – For sweetness.
+
 •	Gelatin or Pectin – To provide the gummy texture (pectin is often used in vegan versions).
+
 •	Natural Flavors – To enhance taste.
+
 •	Citric Acid – Often used for tartness and as a preservative.
+
 •	Coloring Agents – These may vary depending on the brand and could include natural plant-based colors.
+
 •	Other Additives – Some formulas may contain vitamins, minerals, or additional supplements like melatonin or turmeric.
 
 
